@@ -95,7 +95,7 @@ Tenho especial interesse em oportunidades relacionadas a:
 ## 📫 Contato
 
 📧 Email: fernandoaugusto.dev26@gmail.com  
-💼 LinkedIn: Fernando Augusto da Silva  
+💼 LinkedIn: www.linkedin.com/in/fernando-augusto-da-silva-aba766264
 📍 Campo Grande — MS, Brasil
 
 ---
